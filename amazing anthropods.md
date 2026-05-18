@@ -72,3 +72,6 @@ Preparation strategy
 ![alt text](image-3.png)
 
 ![alt text](<WhatsApp Image 2026-05-17 at 10.43.27 PM.jpeg>)
+
+![alt text](image-4.png)
+- 10 spieces
