@@ -61,3 +61,7 @@ Preparation strategy
 
 ![alt text](image-442.png)
 ![alt text](image-443.png)
+
+----------------
+![alt text](image.png)
+![alt text](image-1.png)
