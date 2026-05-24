@@ -23,7 +23,7 @@ https://macombso.org/images/Elementary/Events/Arthropods/AA%20Class%20Workbook-e
 
 ---------------------
 
-![alt text](image-446.png)
+![alt text](image-57.png)
 ![alt text](image-447.png)
 -------------------------
 
@@ -99,4 +99,8 @@ Preparation strategy
 
 --------------
 
+
+silverfish:
+
+![alt text](image-58.png)
 ![alt text](image-19.png)
