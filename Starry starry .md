@@ -65,3 +65,66 @@
 ![alt text](image-59.png)
 ![alt text](image-60.png)
 ![alt text](image-61.png)
+
+## jupiter moons
+- alternate alphabets
+![alt text](image-62.png)
+
+![alt text](image-64.png)
+
+![alt text](image-65.png)
+
+![alt text](image-66.png)
+
+![alt text](image-67.png)
+
+## planets 
+
+![alt text](image-68.png)
+
+![alt text](image-69.png)
+![alt text](image-70.png)
+![alt text](image-71.png)
+![alt text](image-72.png)
+![alt text](image-73.png)
+![alt text](image-74.png)
+![alt text](image-75.png)
+![alt text](image-76.png)
+![alt text](image-77.png)
+![alt text](image-78.png)
+
+## kuiper belt
+- where is kuiper belt located?
+- made out of?= ice,rocks, metals,gas
+- who live there= short term comets, dwarf planets except ceres
+- how much wide and wigght when compared to asteroid belt
+- 
+
+![alt text](image-79.png)
+![alt text](image-80.png)
+
+- OORt cloud
+- who live there?= long lived comets
+- how will the object move?=slowly and they can change it motion because of collsion
+- what is it made out of= long lived comets
+![alt text](image-81.png)
+![alt text](image-83.png)
+
+
+![alt text](image-82.png)
+
+- heliopshere
+
+![alt text](image-84.png)
+
+- helipause
+
+![alt text](image-85.png)
+
+- interstellar space
+
+![alt text](image-86.png)
+
+![alt text](image-87.png)
+
+![alt text](image-88.png)
