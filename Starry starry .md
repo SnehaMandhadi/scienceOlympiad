@@ -82,6 +82,8 @@
 
 ![alt text](image-68.png)
 
+![alt text](image-95.png)
+
 ![alt text](image-69.png)
 ![alt text](image-70.png)
 ![alt text](image-71.png)
@@ -128,3 +130,19 @@
 ![alt text](image-87.png)
 
 ![alt text](image-88.png)
+
+--- Eclipse
+
+![alt text](image-89.png)
+![alt text](image-90.png)
+
+![alt text](image-91.png)
+
+- solar eclipse
+
+![alt text](image-92.png)
+![alt text](image-93.png)
+
+- lunar eclipse
+
+![alt text](image-94.png)

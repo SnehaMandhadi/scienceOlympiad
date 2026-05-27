@@ -104,3 +104,17 @@ silverfish:
 
 ![alt text](image-58.png)
 ![alt text](image-19.png)
+
+- cricket nymph
+
+![alt text](image-97.png)
+![alt text](image-98.png)
+
+![alt text](image-99.png)
+![alt text](image-100.png)
+
+---------
+
+![alt text](image-101.png)
+
+![alt text](image-102.png)
