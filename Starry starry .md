@@ -94,6 +94,7 @@
 ![alt text](image-76.png)
 ![alt text](image-77.png)
 ![alt text](image-78.png)
+![alt text](image-96.png)
 
 ## kuiper belt
 - where is kuiper belt located?
